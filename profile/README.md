@@ -1,3 +1,7 @@
-[汉化组B站链接](https://space.bilibili.com/1247764479)
+<p align="center">Face the estrangemen，Save the mind</p>
 
-[QQ群](https://jq.qq.com/?_wv=1027&k=5NE6Kvg2)
+<p align="center">Singularity：Localize Anything</p>
+
+<p align="center"><a href="https://space.bilibili.com/1247764479">汉化组B站链接</a></p>
+<p align="center">
+<a href="https://jq.qq.com/?_wv=1027&k=5NE6Kvg2">QQ群</a></p>
