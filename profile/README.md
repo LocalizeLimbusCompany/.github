@@ -1,6 +1,6 @@
 <div align="center">
 
-<img alt="LOGO" src="https://avatars.githubusercontent.com/u/129521269" width="256" height="256" />
+<img alt="LOGO" src="https://avatars.githubusercontent.com/u/129521269" />
    
 Face the estrangemen，Save the mind
 
