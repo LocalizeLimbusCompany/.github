@@ -6,5 +6,5 @@
 Without language human beings are cast adrift.
   
 <a href="https://space.bilibili.com/1247764479">汉化组B站链接</a>  
-<a href="https://jq.qq.com/?_wv=1027&k=5NE6Kvg2">QQ群</a>
+<a href="https://pd.qq.com/s/fpzhrgdwo">QQ频道</a>
 </div>
